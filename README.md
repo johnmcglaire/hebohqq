@@ -1,1 +1,3 @@
-# hebohqq
+Situs poker online terpercaya <a href = "https://hebohqq2.idngame.live">HebohQQ</a> merupakan situs perjudian online pkv games Indonesia yang dapat dimainkan di mana saja yaitu PC, Laptop, Android dan iOs. Dengan menggunakan server PKV games yang sangat populer di Indonesia dimana semua pemain judi online dari Indonesia bertemu dan bertanding satu sama lain.
+
+Di server PKV games, pemain poker online dapat memainkan banyak sekali permainan seperti domino99 atau yang biasa disebut domino qq, pokerqq, bandarq, hingga permainan sakong online. Sebagai situs poker resmi terbaik di Indonesia, HebohQQ menawarkan kemudahan withdraw dan deposit uang asli untuk memainkan dominoqq, bandarq online, dan pokerqq. Minimum deposit hanya Rp 15.000 saja dan kamu dapat langsung bertanding dengan pemain lainnya.
